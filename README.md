@@ -1,0 +1,2 @@
+# Erick
+My name is Erick Kimanzi. I have studied Bachelor in Electrical and Electronic Engineering. I have previously worked as an electrician and as a Network planner for fiber internet transmission. I have good knowledge of autocad,  computer applications and industrial application of power. I am currently looking for an opportunity to apply my knowledge and skills as I sharpen my skills further. I am flexible and can fit in any engineering environment. Contact me on +254721838151/+524784119034 or erickkmnz@gmail.com. Thank you 
